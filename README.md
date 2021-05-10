@@ -1,0 +1,2 @@
+# KMGC
+Pan-African Bitcoin
